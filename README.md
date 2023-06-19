@@ -1,4 +1,4 @@
-### Hello to who is reading this 👋
+### Hello to everyone who is reading this 👋
 
 ##### About me
 My name is Ian, i don't have any experience until this moment and i am trying to get some experiences and projects to pursue my carrer
